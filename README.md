@@ -1,2 +1,2 @@
 # Rehan-Rain
-i can do any hard work in tech world . . . .
+i do anything in tech world . . . .
